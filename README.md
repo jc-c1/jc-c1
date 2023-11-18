@@ -1,4 +1,4 @@
-### Hi there 👋 my name is Poopoo
+### Hi there 👋 my name is Joanne, Poopoo is unprofessional.
 
 <!--
 **jc-c1/jc-c1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
